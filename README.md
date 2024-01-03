@@ -26,3 +26,21 @@ The Mater Salutis Feast Day is on October 10 its patron saint is Mother Of Salva
 
 
 The next part will be the part of the church and its area's some of them may be outdated since it was from 2018 and 2017
+
+
+
+Facade of Mater Salutis Parish - Cararayan, Naga City, Camarines Sur. (Photo from Roman Catholic Archdiocese of Caceres website)
+
+![Facade](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZlZkApqdpryiwPj9EATKbZrNOaURNat_C2ACNYBOYdbQN0xP-YEPVvKOHZLQ3OgmW08Pqo28rKbXRyzP6q0K73YKvdSqST_aMehXdcRzYys3YVC2gRqi7oKDxanDkLiH439FzhKPcNQfJw0P3aRU0F8CmRSZBIBALCkQggWzk9FoINaRcbgsKUHAlow/w320-h240/Mater%20Salutis%20Parish%20-%20Cararayan,%20Naga%20City,%20Camarines%20Sur.jpg)
+
+
+
+
+Exterior of Mater Salutis Parish - Cararayan, Naga City, Camarines Sur. (Photo taken on March 2018. Photo from Roman Catholic Archdiocese of Caceres FB Page)
+
+
+
+![Exter](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZjujkhQUMybi9eEh7mYSoqKPY-V0gAKlxrxrQjL8hQXLsqj-_OGPXgWE7AW9eMARM5mnWqRKRmYmYQHXyZ4IvaLMmQ-RvkZ35tsCQ_LQQGAl2TmnEXUHih9TerYq9csMHyuLhcSeOO4oKT2E5kQOHe2-4sVkDEYo-ngetyX0AkWzj6-VLCz5A-49KNQ/w320-h240/Mater%20Salutis%20Parish%20-%20Cararayan,%20Naga%20City,%20Camarines%20Sur%20-%20Exterior.jpg)
+
+
+
