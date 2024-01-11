@@ -1,8 +1,8 @@
-# Mater-Salutis-Parish 
+# Everything You need to know about Mater Salutis 
 
 This is What i have collected from my time in mater salutis parish during my service 
 
-The Mater Salutis Church was Established on September 17.2001 Which is Older than me And Currently has 1 active Priest named Fr. Hanz Christian P. Borbor its Diocese is  Archdiocese of Caceres if you don't know what Diocese means don't worry because a few hours ago i myself did not know it means In church governance, a diocese or bishopric is the ecclesiastical district under the jurisdiction of a bishop. And the Mater salutis church is under Archdiocese of Caceres Picture a short info about is that 
+The Mater Salutis Church was Established on The 17th Of September in the Year 2001  And Currently has 1 active Priest named Rev. Fr. Roldan A. Tordilla and former priest Fr. Hanz Christian P. Borbor. Its Diocese is  Archdiocese of Caceres if you don't know what Diocese means it is In a church governance, a diocese or bishopric is the ecclesiastical district under the jurisdiction of a bishop. And the Mater salutis church is under Archdiocese of Caceres 
 
 
 
@@ -24,9 +24,11 @@ Its Vicariate is Our Lady Of Penafrancia
 
 The Mater Salutis Feast Day is on October 10 its patron saint is Mother Of Salvation and the Titular is Mater Salutis 
 
+![download](https://github.com/MarionPogiz/Mater-Salutis/assets/151001130/750dad1c-853f-461a-b95f-579c920a0900)
 
 
-The next part will be the part of the church and its area's some of them may be outdated since it was from 2018 and 2017
+Picture of The Church
+
 
 
 
@@ -52,17 +54,19 @@ Exterior of Mater Salutis Parish - Cararayan, Naga City, Camarines Sur. (Photo t
 Altar of Mater Salutis Parish - Cararayan, Naga City, Camarines Sur
 
 
-SCHEDULE OF MASSES
-Monday - None
-Tuesday - None
-Wednesday - 6:00 PM
-Thursday - 6:00 PM
-Friday - 6:00 PM
-Saturday - 7:00 AM
-Sunday - 6:00 AM, 8:00 AM, 10:00 AM, 5:00 PM
+Schedule Of Masses
+| Monday | Tuesday | Wednesday | Thursday | Friday | Saturday | Sunday |
+|--------|---------|-----------|----------|--------|----------|--------|
+| 6:30 AM| 6:30 AM| | 6:30 AM| 6:30 AM |  6:30 AM   | 6:30 AM| |5:00 AM|
+|--------|---------|----------|----------|--------|----------|8:00 AM|
+|--------|---------|----------|-----------|-------|-----------|4:00 PM|
 
 
-
+|Contact Info|
+--------------
+Have Questions Here is Thier Contact 
+Email Adress: mailto:matersalutisparish83120@gmail.com
+telephone number: 0919-5270730
 
 [Learn More](https://www.facebook.com/MaterSalutisParish/)
 
