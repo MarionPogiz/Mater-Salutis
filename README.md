@@ -55,16 +55,18 @@ Altar of Mater Salutis Parish - Cararayan, Naga City, Camarines Sur
 
 
 Schedule Of Masses
+
 | Monday | Tuesday | Wednesday | Thursday | Friday | Saturday | Sunday |
 |--------|---------|-----------|----------|--------|----------|--------|
 | 6:30 AM | 6:30 AM | 6:30 AM | 6:30 AM |  6:30 AM   | 6:30 AM | 5:00 AM |
-| | | | | | | 8:00 AM|
-| | | | | | | 4:00 PM|
+| | | | | | | 8:00 AM |
+| | | | | | | 4:00 PM |
 
 
 |Contact Info|
 --------------
 Have Questions Here is Thier Contact 
+
 Email Adress: mailto:matersalutisparish83120@gmail.com
 telephone number: 0919-5270730
 
