@@ -70,5 +70,5 @@ Have Questions Here is Thier Contact
 Email Adress: mailto:matersalutisparish83120@gmail.com
 telephone number: 0919-5270730
 
-[Learn More](https://www.facebook.com/MaterSalutisParish/)
+[Learn More](https://www.facebook.com/people/Mater-Salutis-Parish/100070039629336/?sk=photos)
 
